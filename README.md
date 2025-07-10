@@ -15,4 +15,4 @@
 隐私保护方面，平台通常会采用HTTPS加密技术，保护用户的个人信息和观看记录不被泄露。避免弹出恶意广告也是平台的一大特色，这样可以保证用户享受一个无干扰的观看环境。  
 总结来说，国产午夜成人精品平台通过高清播放、丰富的影片分类、便捷的观看方式以及强大的隐私保护，为用户提供了一个极佳的观看体验。无论是在内容还是在用户体验上，平台都力求做到最好。
 
-<span style="display:none;">[Canonical link]( )</span>
+<span style="display:none;">[Canonical link](https://github.com/job234543/ribentt06 )</span>
